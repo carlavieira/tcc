@@ -1,4 +1,4 @@
-# Memorial Descritivo da Graduação em Engenharia de Software na PUC Minas (2018 - 2021)
+# Memorial Descritivo da Graduação em Engenharia de Software na PUC Minas (2019 - 2021)
 
 Carla d'Abreu Martins Vieira
 
